@@ -8,4 +8,4 @@
 
 [1](https://becquerels.straw.page/)ㅤ.ㅤ[2](https://theprinceofdoom.straw.page/)
 
-[ata](wakeupyourpsyche.atabook.org)
+[ata](https://wakeupyourpsyche.atabook.org)
