@@ -4,7 +4,7 @@
 
 
 
-<sup>pokemón, homestuck, tf2 and ride the cyclone encouraged to interact</sup>
+<sup>pokémon, homestuck, tf2 and ride the cyclone encouraged to interact</sup>
 
 [ᓚᘏᗢ](https://github.com/wakeupyourpsyche/)
 
