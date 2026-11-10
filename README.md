@@ -1,7 +1,7 @@
 <div align="center">
 
 
-<img alt="3dgifmaker71325" src="https://github.com/user-attachments/assets/1d2da486-64e0-4c3f-b6d9-9b473f851e33" />
+<img alt="3dgifmaker96391" src="https://github.com/user-attachments/assets/bec25da3-d77b-467f-96cb-687c723ac37b" />
 
 
 <sup>pokémon, pokéspe, poképasta, homestuck, tf2 and ride the cyclone encouraged to interact</sup>
