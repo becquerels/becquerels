@@ -6,8 +6,8 @@
 
 <sup>pokémon, pokéspe, poképasta, homestuck, tf2 and ride the cyclone encouraged to interact</sup>
 
-[ᓚᘏᗢ](https://github.com/wakeupyourpsyche/)
+[ᓚᘏᗢ](https://github.com/cherrygrovecity/)
 
-[1](https://becquerels.straw.page/)ㅤ.ㅤ[2](https://theprinceofdoom.straw.page/)
+[1](https://becquerels.straw.page/)ㅤ.ㅤ[2](https://xatuu.straw.page/)
 
-[ata](https://wakeupyourpsyche.atabook.org)ㅤ,ㅤ[tumblr](https://www.tumblr.com/becquerelium)
+[ata](https://xatu.atabook.org)ㅤ,ㅤ[tumblr](https://www.tumblr.com/becquerelium)
