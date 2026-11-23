@@ -13,4 +13,4 @@
 [ata](https://xatu.atabook.org)ㅤ,ㅤ[tumblr](https://www.tumblr.com/becquerelium)
 
 
-<p align="center"> $\small{\text{\it\color{#E85E8E}{dai dai dai kirai}}}$</a></p>
+<p align="center"> $\{\text{\it\color{#4FAD27}{dai dai dai kirai}}}$</a></p>
