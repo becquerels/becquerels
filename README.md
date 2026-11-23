@@ -11,3 +11,6 @@
 [1](https://becquerels.straw.page/)ㅤ.ㅤ[2](https://xatuu.straw.page/)
 
 [ata](https://xatu.atabook.org)ㅤ,ㅤ[tumblr](https://www.tumblr.com/becquerelium)
+
+
+<p align="center"> $\small{\text{\it\color{#E85E8E}{dai dai dai kirai}}}$</a></p>
